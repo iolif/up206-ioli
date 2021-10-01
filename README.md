@@ -1,1 +1,3 @@
 # up206-ioli
+# mid career international development professional looking to gain new skills and tools to improve my practice. Hope to focus on drivers and mitigators of violence and conflict in urban ( and sub urban) settings.  Explore cross cutting responses that integrate approaches from various disciplines. also interested in post-conflict reconstruction and refugee settlements upgrades to create more liveable, equitable and sustainable spaces. 
+# class objectives are to be a more critical and informed consumer and analyst of data, to advance my field research skills and combine quant/qual elements with mapping. Use mapping as a participatory /empowerment method with target groups. 
